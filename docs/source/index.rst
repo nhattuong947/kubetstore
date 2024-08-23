@@ -15,4 +15,6 @@ Email: CSKH@kubet.store.
 
 Website: https://kubet.store/
 
+Author: https://kubet.store/author/blv-huynh-phuong/
+
 #kubet #nhacaikubet #trangchukubet #ku_bet #linkkubet #kubet11 #kubet77 #kubet88 #ku11

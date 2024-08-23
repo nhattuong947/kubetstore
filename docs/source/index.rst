@@ -1,22 +1,18 @@
-Welcome to Lumache's documentation!
+KUBET 🏆 【KUBET11】- Link đăng nhập Ku Bet Casino mới nhất - kubet.store
 ===================================
 
-**Lumache** (/lu'make/) is a Python library for cooks and food lovers
-that creates recipes mixing random ingredients.
-It pulls data from the `Open Food Facts database <https://world.openfoodfacts.org/>`_
-and offers a *simple* and *intuitive* API.
+`KUBET <https://kubet.store/>`_ 🏆 【KUBET11】là nhà cái casino uy tín hàng đầu tại Việt Nam, được thành lập từ năm 2010. Ku bet nổi tiếng với sảnh Ku Casino, Cá cược bóng đá và Xổ số, lô đề. Kubet đã khẳng định vị thế của mình trong ngành công nghiệp giải trí trực tuyến. 
 
-Check out the :doc:`usage` section for further information, including
-how to :ref:`installation` the project.
+Kubet.store là cổng đăng nhập chính thức của Kubet tại Việt Nam, đã và đang đưa Kubet đến với người chơi nhiều hơn. Kubet cung cấp ba sảnh game cá cược chính: Ku Casino với các trò chơi trực tuyến cùng MC người Việt xinh đẹp, Ku Thể Thao với cá cược bóng đá, thể thao ảo, Esport và Ku Xổ Số chuyên về các loại hình xổ số với tỷ lệ thưởng hấp dẫn.
 
-.. note::
+Thông tin liên hệ: 
 
-   This project is under active development.
+Địa chỉ: Quần 2, Tp. Hồ Chí Minh, Việt Nam. 
 
-Contents
---------
+Phone: 0913836222. 
 
-.. toctree::
+Email: CSKH@kubet.store. 
 
-   usage
-   api
+Website: https://kubet.store/
+
+#kubet #nhacaikubet #trangchukubet #ku_bet #linkkubet #kubet11 #kubet77 #kubet88 #ku11
